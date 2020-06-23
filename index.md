@@ -1,1 +1,2 @@
 # Abed from Community
+Abed is a character on the US-sitcom Community. Abed is very interested in popculture, especially movies. He sometimes has difficulties with social interactions and has a rather analytical approach to his friends, nevertheless he is a true friend and supporter of hier group. He maybe is one of the most interesting and complex characters in a american sitcom. 
