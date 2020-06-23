@@ -7,5 +7,5 @@ Abed is a character on the US-sitcom Community. Abed is very interested in popcu
 * loves movies
 > Britta, I've got self-esteem falling out of my butt. That's why I was willing to change for you guys because when you 
 > really know who you are and what you like about yourself, changing for other people isn't such a big deal.
-<img src="https://community-sitcom.fandom.com/wiki/Abed_Nadir?file=Community_s2_danny_pudi_005_595.jpg
-"/>
+
+<img src="https://community-sitcom.fandom.com/wiki/Abed_Nadir?file=Community_s2_danny_pudi_005_595.jpg"/>
