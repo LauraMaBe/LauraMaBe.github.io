@@ -9,4 +9,4 @@ Abed is a character on the US-sitcom Community. Abed is very interested in popcu
 > really know who you are and what you like about yourself, changing for other people isn't such a big deal.
 
 
-<img src="https://community-sitcom.fandom.com/wiki/Abed_Nadir?file=Community_s2_danny_pudi_005_595.jpg"/>
+<img src="https://www.myfanbase.de/pics/74117.jpg"/>
