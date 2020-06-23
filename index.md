@@ -10,4 +10,3 @@ Abed is a character on the US-sitcom Community. Abed is very interested in popcu
 
 
 <img src="https://de.wikipedia.org/wiki/Community_(Fernsehserie)#/media/Datei:Community_cast_at_SDCC_2012_2.jpg"/>
-
