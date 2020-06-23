@@ -5,3 +5,5 @@ Abed is a character on the US-sitcom Community. Abed is very interested in popcu
 * loyal
 * positive
 * loves movies
+> Britta, I've got self-esteem falling out of my butt. That's why I was willing to change for you guys because when you 
+> really know who you are and what you like about yourself, changing for other people isn't such a big deal.
